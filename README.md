@@ -3,9 +3,9 @@
 **Update:** 0.3 🚫No Downloading the files🚫
 
 # The Nokwok Server
-![ggggg](https://media.discordapp.net/attachments/639541611528716318/693549741572882442/logo.png?width=1232&height=665)
-![ggggg](https://pbs.twimg.com/media/ED9PY0CWkAA0X-S.jpg:large)
-https://twitter.com/MagentaGirl_/status/1170741721862430720
+![ggggg](https://cdn.discordapp.com/attachments/715739617256669264/715740056500830248/YTC_Banner.png?width=1232&height=665)
+![ggggg](https://cdn.discordapp.com/icons/677594854653558834/a_4d967491cfa1cd3440783479d980ebd2.gif?size=1024)
+
 
 
 
