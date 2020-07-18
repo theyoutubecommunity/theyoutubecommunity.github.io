@@ -1,4 +1,4 @@
-# theyoutubecommunity.github.io/[![Discord](https://discordapp.com/api/guilds/337749515711021056/widget.png)](https://discord.gg/zfeJ8CS)
+# theyoutubecommunity.github.io[![Discord](https://discordapp.com/api/guilds/677594854653558834/widget.png)](https://discord.gg/zfeJ8CS)
 ### Are website is Live!!!
 **Update:** 0.3 🚫No Downloading the files🚫
 
