@@ -22,7 +22,4 @@ Credits:
 		dralex47#3475
 
 	Other:
-		MiniMuka#9164
-		MagentaGirl#3801
-		Apple#2530
-		nom#7344
+		hb00#2000
